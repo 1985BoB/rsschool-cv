@@ -5,6 +5,8 @@
 * E-mail: vovakasp1985@gmail.com
 * Diskord: 1985BoB
 
+![](..%5C..%5Cavatar.jpg)
+
 ## About me
  I am 36 years old, I work as a head of the purchasing department in a trade organization and i have an excellent wife. One day I realized that I am interested in programming. I am sure that in this area I will be able to realize my potential and take part in many interesting and useful projects.
 
